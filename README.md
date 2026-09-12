@@ -1,0 +1,1 @@
+# mini_projeck_1_ddp_Muhammad-Fachri-Razabi
